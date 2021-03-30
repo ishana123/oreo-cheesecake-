@@ -1,0 +1,7 @@
+- 8 oreos
+- 2 tbps butter
+- 180 ml Milk
+- 1 tbsp Agar Agar powder 
+- 2 tbsp Sugar(out of total quantity sugar 100gms)
+- 200 gms Cream Cheese (soft)
+- Sugar (remaining of 100 gms)
